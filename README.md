@@ -1,0 +1,1 @@
+# httaforward.trendyol.com
